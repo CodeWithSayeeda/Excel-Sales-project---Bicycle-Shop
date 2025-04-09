@@ -54,5 +54,5 @@ To create an interactive dashboard for stakeholders that provides an overview of
 
 ## 📬 Contact
 
-- 📧 Email: your.email@example.com  
+- 📧 Email: s.begum.professional92@gmail.com 
 - 🔗 [LinkedIn[(]https://www.linkedin.com/in/sayeeda-begum-b84916312/)]
